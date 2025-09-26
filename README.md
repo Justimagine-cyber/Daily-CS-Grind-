@@ -1,2 +1,2 @@
 # Daily-CS-Grind-
-Oh the ground
+On the grind compsci ni bibe HAHAHAHAH
